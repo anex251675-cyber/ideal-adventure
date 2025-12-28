@@ -1,1 +1,1 @@
-ch bldpdinodubledinostuccocyclecompduckshopstuccocyclezarursclchodfffjgsodivyahhvh# ideal-adventure
+dinoch bldpdinodubledinostuccocyclecompduckshopstuccocyclezarursclchodfffjgsodivyahhvh# ideal-adventure
