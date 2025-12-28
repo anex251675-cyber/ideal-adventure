@@ -1,1 +1,1 @@
-stuccocyclezarursclchodfffjgsodivyahhvh# ideal-adventure
+shopstuccocyclezarursclchodfffjgsodivyahhvh# ideal-adventure
